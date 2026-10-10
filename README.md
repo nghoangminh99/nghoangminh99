@@ -11,11 +11,17 @@
 <img width="735" height="576" alt="tải xuống (3)" src="https://github.com/user-attachments/assets/596ef011-b574-4f25-be73-0ab15cf86064" />
 
 <img width="540" height="304" alt="tải xuống" src="https://github.com/user-attachments/assets/eea0c0f8-95c8-445a-adf3-7bc1782e0241" />
+
+
 "Em gửi gì vào biển xanh bao la?
 
 
 Mà sóng cứ vỗ về bờ da diết
+
+
 Nỗi nhớ anh rộng dài khôn xiết
+
+
 Biển giấu lòng mình trong sắc xanh xưa."
 
 # -
