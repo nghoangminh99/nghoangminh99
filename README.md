@@ -1,6 +1,7 @@
 <img width="781" height="237" alt="image" src="https://github.com/user-attachments/assets/5e1156c9-9ad9-452d-bc8a-9a406cf0716b" />
 
-
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&pause=1000&color=FFB6C1&center=true&vCenter=true&width=435&lines= Yugi Amane %C4%A9n" alt="Typing SVG" />
+</p>
 
 
 <img width="739" height="639" alt="image" src="https://github.com/user-attachments/assets/001be9d2-6fa2-4b6d-87d8-6f1c0f5dbe99" />
