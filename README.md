@@ -7,14 +7,21 @@
 
 <img width="739" height="639" alt="image" src="https://github.com/user-attachments/assets/001be9d2-6fa2-4b6d-87d8-6f1c0f5dbe99" />
 
+> ༺𓆩༒︎𓆪༻ Sweetie/Bias : Haru - Welcome Home , Gotou Shinpei - FW , Hanako/Amane - TBHk , Hikaru Indou - TSHD <3. 
+>
+> 𓆩♡𓆪 I'm GATEKEEPING YUGI AMANE/HANAKO-KUN (⸝⸝ᴗ﹏ᴗ⸝⸝) ᶻ 𝗓 𐰁
+>
+> 𓇼 ⋆｡˚ 𓆝 I love winter ! ^o^
+>
+> 𓆩♡𓆪 Always appearing sleepy, loves buitruonglinh's music.
+>
+> ꒰ঌ ໒꒱Erratic temperament <3 !!
 
 <img width="770" height="116" alt="image" src="https://github.com/user-attachments/assets/b276225f-79ad-4e8e-8a3f-f491e25865e3" />
 
 <h2 align="center">♡Call me. Kin/m1 only </h2>
 
 <img width="781" height="240" alt="image" src="https://github.com/user-attachments/assets/7cdb4287-76e1-4b5a-8f27-c77e7e93bb19" />
-
-
 
 <img width="782" height="428" alt="image" src="https://github.com/user-attachments/assets/6575709f-b880-4d9e-8259-7d0e113c7de7" />
 
