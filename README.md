@@ -9,10 +9,9 @@
 <img width="770" height="116" alt="image" src="https://github.com/user-attachments/assets/b276225f-79ad-4e8e-8a3f-f491e25865e3" />
 
 
-<h2 align="center">[ata](https://miikieen06.atabook.org)</h2>
-
-[ata](https://miikieen06.atabook.org)
-[Atabo0k](https://miikieen06.atabook.org/) 𓆩♡𓆪
+<h2 align="center" Kin or m1 <3 </h2>
+  
+                     [Atabo0k](https://miikieen06.atabook.org/) 𓆩♡𓆪
 
 
 <img width="781" height="240" alt="image" src="https://github.com/user-attachments/assets/7cdb4287-76e1-4b5a-8f27-c77e7e93bb19" />
