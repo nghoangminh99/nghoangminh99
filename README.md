@@ -7,7 +7,7 @@
 
 <img width="739" height="639" alt="image" src="https://github.com/user-attachments/assets/001be9d2-6fa2-4b6d-87d8-6f1c0f5dbe99" />
 
->                   ༺𓆩༒︎𓆪༻ Sweetie/Bias : Haru - Welcome Home , Gotou Shinpei - FW , Hanako/Amane - TBHk , Hikaru Indou - TSHD <3. 
+>     ༺𓆩༒︎𓆪༻ Sweetie/Bias : Haru - Welcome Home , Gotou Shinpei - FW , Hanako/Amane - TBHk , Hikaru Indou - TSHD <3. 
 >
 > 𓆩♡𓆪 I'm GATEKEEPING YUGI AMANE/HANAKO-KUN (⸝⸝ᴗ﹏ᴗ⸝⸝) ᶻ 𝗓 𐰁
 >
