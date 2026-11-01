@@ -1,6 +1,6 @@
 <img width="781" height="237" alt="image" src="https://github.com/user-attachments/assets/5e1156c9-9ad9-452d-bc8a-9a406cf0716b" />
 
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&pause=1000&color=FFB6C1&center=true&vCenter=true&width=435&lines=Yugi+Amane\" alt="Typing SVG" />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&pause=1000&color=31317B&center=true&vCenter=true&width=435&lines=Yugi+Amane+,+my+1st+husband+<3" alt="Typing SVG" />
 </p>
 </p>
 
