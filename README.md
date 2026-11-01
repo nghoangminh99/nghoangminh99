@@ -15,7 +15,7 @@
 >
 >               𓇼 ⋆｡˚ 𓆝 I love winter ! ^o^
 >
-> 𓆩♡𓆪 Always appearing sleepy, loves buitruonglinh's music.
+> 𓆩♡𓆪 Always appearing sleepy, love buitruonglinh's music.
 > 
 >                    ꒰ঌ ໒꒱Erratic temperament <3 !!
 
@@ -24,7 +24,7 @@
   
 <img width="781" height="240" alt="image" src="https://github.com/user-attachments/assets/7cdb4287-76e1-4b5a-8f27-c77e7e93bb19" />
 
-#Sweeeet Candies ><
+> #Sweeeet Candies ><
 
 <img width="782" height="428" alt="image" src="https://github.com/user-attachments/assets/6575709f-b880-4d9e-8259-7d0e113c7de7" />
 
