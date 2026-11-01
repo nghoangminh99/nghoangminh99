@@ -11,7 +11,7 @@
 
 
 <p align="center">
-    <font color="FF8CC">[Atabook](https://miikieen06.atabook.org/)</font>
+    <font color="red">[Atabook](https://miikieen06.atabook.org/)</font>
   </a>
 </p>
 
