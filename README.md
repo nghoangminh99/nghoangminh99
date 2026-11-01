@@ -12,7 +12,7 @@
 
 <p align="center">
   <a href="(https://miikieen06.atabook.org)">
-    <font color="red">ata</font>
+    <font color=FFE8CC"ata"book𓆩♡𓆪 >
   </a>
 </p>
 
