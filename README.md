@@ -9,15 +9,10 @@
 <img width="770" height="116" alt="image" src="https://github.com/user-attachments/assets/b276225f-79ad-4e8e-8a3f-f491e25865e3" />
 
 
-
-<p align="center">
-  <a href="(https://miikieen06.atabook.org)">
-    <font color=FFE8CC"ata"book𓆩♡𓆪 >
-  </a>
-</p>
+<h2 align="center">[A T A B O O K](https://miikieen06.atabook.org/</h2>
 
 
-<centre&[Atabo0k](https://miikieen06.atabook.org/) 𓆩♡𓆪>
+[Atabo0k](https://miikieen06.atabook.org/) 𓆩♡𓆪
 
 
 <img width="781" height="240" alt="image" src="https://github.com/user-attachments/assets/7cdb4287-76e1-4b5a-8f27-c77e7e93bb19" />
