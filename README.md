@@ -12,8 +12,7 @@
 
 m.
 
-
- <a href="[Atabo0k](https://miikieen06.atabook.org/)">
+<"[Atabo0k](https://miikieen06.atabook.org/)">
 
 
 <img width="781" height="240" alt="image" src="https://github.com/user-attachments/assets/7cdb4287-76e1-4b5a-8f27-c77e7e93bb19" />
