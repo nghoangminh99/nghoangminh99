@@ -21,6 +21,6 @@ m.
 
 <img width="782" height="428" alt="image" src="https://github.com/user-attachments/assets/6575709f-b880-4d9e-8259-7d0e113c7de7" />
 
-<img width="368" height="212" alt="image" src="https://github.com/user-attachments/assets/82b29240-27f2-4c9a-919b-dd576c91b5f6" />
+<img width="768" height="512" alt="image" src="https://github.com/user-attachments/assets/82b29240-27f2-4c9a-919b-dd576c91b5f6" />
 
 
