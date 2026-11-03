@@ -15,7 +15,7 @@
 >
 >               𓇼 ⋆｡˚ 𓆝 I love winter ! ^o^
 >
-> 𓆩♡𓆪 Always appearing sleepy, love buitruonglinh's music.
+> ~~ Always appearing sleepy, love buitruonglinh's music. TvT
 > 
 >                    ꒰ঌ ໒꒱Erratic temperament <3 !!
 
